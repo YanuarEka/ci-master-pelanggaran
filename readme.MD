@@ -1,1 +1,1 @@
-Gak papa kok gak sakit hehe
+SAKINAAFFFFFFFF
